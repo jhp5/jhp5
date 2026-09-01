@@ -1,4 +1,4 @@
-- Hi, I'm @jhp5, a deep learning learner with music in my blood.
+- Hi, I'm @jhp5, unkown, yet unyielding to mediocrity.
 - E-mail: 860102335@qq.com
 <!---
 -👋 Hi, I’m @jhp5
